@@ -1,0 +1,1 @@
+Metapay is charging people without permission, even if their cards aren't attached to their accounts! who is charging these people? how did they get access to their accounts?. Kiara-News is on the case.
